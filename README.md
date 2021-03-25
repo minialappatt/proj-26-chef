@@ -1,0 +1,1 @@
+Kheer, payasa, payasam or phirni is a type of pudding from the Indian subcontinent, made by boiling milk, sugar, and rice, although rice may be substituted with one of the following: bulgar wheat, millet, tapioca, vermicelli, or sweet corn. 
